@@ -40,7 +40,11 @@ In the current context in which the climate emergency plays a decisive role in t
 
 It is in this sense that the Implementation of Climate Guardian Tourist Destinations project has as its mission to engage and transform entrepreneurs in the tourism sector, tourists, local residents, and traditional populations – family farmers, indigenous peoples and quilombolas – into protagonists in facing the climate emergency and the sustainability of Brazilian tourist destinations.
 
+[![Mecenas2.png](https://i.postimg.cc/rsB2XCbK/Mecenas2.png)](https://postimg.cc/y3yb097H)[![Mecenas4.png](https://i.postimg.cc/2yQVVwWB/Mecenas4.png)](https://postimg.cc/y3NVG0vV)
+
 The project is based on the following values: fraternity; collaboration; honesty; innovation; simplicity; ethics, transparency; co-responsibility; purpose; regeneration; and spirituality.
+
+[![Mecenas5.png](https://i.postimg.cc/LXmWc4TK/Mecenas5.png)](https://postimg.cc/sB0KSrqw)[![Mecenas6.png](https://i.postimg.cc/nr2932Lf/Mecenas6.png)](https://postimg.cc/2Lq564v0)
 
 ## Localization of the project
 The project is being carried out in three regions of Brazil: 
