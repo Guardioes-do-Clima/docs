@@ -3,8 +3,11 @@
 ## Description
 The implementation of the **Climate Guardian Tourist Destinations** in Brazil is part of the future vision of the **CO2 Legal Climate Guardians Tourism Program**, one of the most innovative and creative initiatives in the world in the area of tourism, which in recent years has been **recognized by prestigious awards**, including the Sustainable Tourism Innovation Challenge Award,  promoted by Ashoka Brazil; and **gold winner** of the WTM Latin America Responsible Tourism Awards, in the Travel and Tourism Decarbonization category.
 
+[![Mecenas2.png](https://i.postimg.cc/rsB2XCbK/Mecenas2.png)](https://postimg.cc/y3yb097H)[![Mecenas4.png](https://i.postimg.cc/2yQVVwWB/Mecenas4.png)](https://postimg.cc/y3NVG0vV)
 
 The Climate Guardian Tourist Destinations proposes the creation of a broad system of shared value, engaging the most diverse social actors - tourism entrepreneurs, tourists, local residents, rural communities, traditional populations, public authorities and Civil Society Organizations - to act in a collaborative and integrated way in favor of the climate, the protection and regeneration of natural and sociocultural heritage.  sustainable and regenerative agriculture and socioeconomic inclusion of social groups living in situations of vulnerability.
+
+[![Mecenas5.png](https://i.postimg.cc/LXmWc4TK/Mecenas5.png)](https://postimg.cc/sB0KSrqw)[![Mecenas6.png](https://i.postimg.cc/nr2932Lf/Mecenas6.png)](https://postimg.cc/2Lq564v0)
 
 The implementation of the Climate Guardian Tourist Destinations will boost the progress of the 2030 Agenda in Brazil, focusing on 10 Sustainable Development Goals: 
 
@@ -45,6 +48,7 @@ The project is being carried out in three regions of Brazil:
 - **Caraíva** – Trancoso Environmental Protection Area, on the extreme southern coast of the state of Bahia;
 - **Jijoca Lagoon** Environmental Protection Area, in Jijoca de Jericoacoara, on the north coast of the state of Ceará.
 
+[![3.png](https://i.postimg.cc/L69Ryp0c/3.png)](https://postimg.cc/F1B2R2vp)[![1.png](https://i.postimg.cc/x1F0J45W/1.png)](https://postimg.cc/v4fRCXpz)[![5.png](https://i.postimg.cc/yxPKVQWp/5.png)](https://postimg.cc/RJNydT7w)
 
 ## Regenerative activities
 In the social pillar, the project works on the socioeconomic and cultural regeneration of traditional populations – family farmers, quilombolas and indigenous people. To this end, the project offers these families Payment for Environmental Services, in the amount of  400 BRL (76,20 USD) per month, which works as an economic incentive for them to conserve and regenerate the forests, biodiversity and natural resources of their properties. The project also offers training and technical advice so that these social groups can be included in the tourism economy, both as suppliers of agroecological food and as offsets of greenhouse gas emissions from the tourist trade and tourists. Thus, these families are able to increase their income and, consequently, have an improvement in their quality of life. As a result, there is a regeneration and strengthening of the social fabric in rural areas, which contributes to the customs, values and cultural traditions of these social groups being rescued, regenerated and valued.
